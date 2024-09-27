@@ -9,4 +9,4 @@ E sou uma escritora razoável (vamos ser humildes)
 Entre em contato comigo
 rabito.lima@escola.pr.gov.br
 
-if{}(https://tenor.com/pt-BR/view/hi-hey-hello-there-kitten-cute-gif-166979370)
+if[](![image](https://github.com/user-attachments/assets/c318ed7a-d370-4172-957e-134e62eadd3c)
