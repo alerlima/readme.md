@@ -9,4 +9,4 @@ E sou uma escritora razoável (vamos ser humildes)
 Entre em contato 
 rabito.lima@escola.pr.gov.br 
 
-https://tenor.com/vATllJGJnnk.gif
+if[](https://tenor.com/vATllJGJnnk.gif)
