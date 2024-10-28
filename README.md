@@ -9,4 +9,4 @@ E sou uma escritora razoável (vamos ser humildes)
 Entre em contato 
 rabito.lima@escola.pr.gov.br 
 
-if[](https://tenor.com/vATllJGJnnk.gif)
+if[](https://tenor.com/pt-BR/view/ariana-grande-ariana-grande-kiss-ari-ariana-grande-heart-ariana-grande-blowing-kiss-gif-17987115633298461228)
